@@ -1,2 +1,2 @@
-# Tienda de cursos UDEMY de Alejandr G Vera
+# Tienda de cursos UDEMY de Alejandro G Vera
 
